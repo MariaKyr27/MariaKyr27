@@ -1,3 +1,3 @@
 # MariaKyr27
 
-## 2 logia gia mena
+## 2 logia gia mena, kai alla liga
